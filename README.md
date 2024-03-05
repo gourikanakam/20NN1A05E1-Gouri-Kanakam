@@ -1,1 +1,0 @@
-# 20NN1A05E1-Gouri-Kanakam
